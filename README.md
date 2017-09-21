@@ -1,1 +1,1 @@
-Ikke stol på denne.
+Noe tull.
