@@ -1,1 +1,1 @@
-Ikke les denne!
+Ikke stol på denne.
